@@ -14,3 +14,5 @@ Er starb an einem Speedball, einer Injektion von Kokain und Heroin.
 
 ## Zitat (übersetzt)
 > Die Band
+
+<img src="https://de.wikipedia.org/wiki/John_Belushi#/media/Datei:John_Belushi_2008_stamp_of_Albania.jpg"/>
