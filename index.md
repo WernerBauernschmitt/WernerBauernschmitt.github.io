@@ -11,3 +11,6 @@ Er starb an einem Speedball, einer Injektion von Kokain und Heroin.
 * Kultfilm Blues Brothers
 * Partner Dan Aykroyd
 * Bruder James Belushi
+
+## Zitat (übersetzt)
+> Die Band
